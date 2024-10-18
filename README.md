@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vidhya Yuvaraj
-- 🌱 I’m currently learning JAVA 
+- 
 - 💞️ I’m looking for a team to share the knowldge and their experience 
 - 📫 You can reach me on 9176611508
 
